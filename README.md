@@ -1,1 +1,1 @@
-I ate the ass of whom is reading
+I love my school 
